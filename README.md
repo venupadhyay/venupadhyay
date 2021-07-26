@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @venupadhyay a Mechanical Engineering Graduate from Coventry University
+- 🌱 I’m currently looking for opportunities withing the Engineering Field
+- 📫 How to reach me: -Mobile: 07739573159  -Email: venupadhyay@yahoo.com
